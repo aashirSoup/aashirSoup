@@ -1,3 +1,3 @@
 Ashir Aryal
-Northeastern University 1st Year
-Computer Science and Mathematics
+Northeastern University 2nd Year
+Computer Science
